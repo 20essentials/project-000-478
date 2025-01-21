@@ -1,0 +1,3 @@
+- **Reference ⬇️**
+  - [Fondo img](https://wallhaven.cc/w/n6mg37)
+  - [Online Tutorials video inspiration](https://youtu.be/uRxuhPJwgfU?si=9zgdbauD5BwAB8oZ)
